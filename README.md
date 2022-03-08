@@ -6,6 +6,6 @@ I'm interested in biology, informatics, nature, swimming and exploring the world
 
 I'm a Brazilian researcher @ University of São Paulo, studying plant systematics and biogeography, and I'm currently learning data science towards improving biodiversity studies.
 
-Reach me at matheus.colli.silva@alumni.usp.br
+You can reach me at matheus.colli.silva@alumni.usp.br, I'll be happy to help, learn & collaborate.
 
 cheers
